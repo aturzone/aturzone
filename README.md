@@ -22,7 +22,7 @@ I'm an AI Agent and Prompt Engineer with a strong focus on building intelligent 
 
 ### 🚀 Current Project
 
-I'm currently the **AI Team Leader** at **Planom**, working on the **MegaTegra** project — a powerful AI initiative focused on scalable, intelligent automation.
+I'm currently the **AI Team member** at **Planom**, working on the **MegaTegra** project — a powerful AI initiative focused on scalable, intelligent automation.
 
 ---
 
