@@ -28,7 +28,7 @@ I'm currently the **AI Team member** at **Planom**, working on the **MegaTegra**
 
 ###
 
-<img align="right" height="200" src="https://i.imgflip.com/65efzo.gif"  />
+<img align="right" height="200" src="https://user-images.githubusercontent.com/74038190/212284094-e50ceae2-de86-4dd6-9f9c-a3ebcb3ede9e.gif"  />
 
 ###
 
